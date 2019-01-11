@@ -1,6 +1,6 @@
 # La guerre des pingouins contre le tyrannique cochon voleur de culotte.
 
-L'histoire se déroule en 2140. \n
-Tout a commencé à cause d'un seigneur cochon voleur de culotte qui décida d'envahir un territoire de trop. \n
-Ce tyran avait déjà controllé la moitié de l'europe, mais tenter de débarquer en Asia était la goutte de trop. \n
+L'histoire se déroule en 2140.
+Tout a commencé à cause d'un seigneur cochon voleur de culotte qui décida d'envahir un territoire de trop.
+Ce tyran avait déjà sous son controlle la moitié de l'Europe, mais tenter de s'attaquer à l'Asia était la goutte de trop et les pinguoins avait la ferme intention de se défendre.
 
